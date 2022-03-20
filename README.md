@@ -1,2 +1,2 @@
-# AdarshSIdhant.github.io
+# AdarshSidhant.github.io
 Adarsh  Website
